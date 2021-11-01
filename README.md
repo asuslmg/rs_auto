@@ -1,3 +1,3 @@
 # happybirthday
 lulu happybirthday
-https://shibobo.github.io/happybirthday/
+https://asuslmg.github.io/lulubirthday/index.html
